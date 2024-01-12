@@ -1,12 +1,12 @@
 # Reflection 🖇️
 ## Summarizing What I Have Gained From This 🚀
 
-During the NALI exhibition, I delved into a tech wonderland at UTM! 🌐 From cutting-edge innovations to mind-blowing technologies, my curiosity was piqued. Engaging in interviews and chatting with booth speakers, I uncovered how these advancements supercharge the learning experience at UTM. The interactive sessions let me fire away questions, expanding my understanding of the ICT magic unfolding. In a nutshell, this escapade has widened my outlook on how ICT can shape the educational future at UTM. 🎓
+During the NALI exhibition, I was able to learn about various technologies and innovations that have been implemented at UTM. By attending the interviews and discussing with the booth speakers, I have gained a deeper understanding of how these technologies can enhance the learning experience at UTM. The interview sessions provided an interactive environment, allowing me to ask questions and seek further clarification on the subject matter. Overall, this experience has broadened my perspective on the potential of ICT in transforming education at UTM. 🌐
 
 ## Suggestions for Improvement 🛠️
 
-Let's power up the reporting structure! 💪 The booth speakers can sprinkle in more profound analyses of their findings and toss in some juicy recommendations for future implementations. Spice up that information flow and make it a tech feast for the audience! 🌈
+The booth speakers can strengthen more the reporting structure by including more in-depth analysis of the findings and providing recommendations for future implementation. 🌈
 
 ## Others – Personal Reflections and Ideas 🤔💡
 
-The NALI exhibition ignited a tech spark within me! 🔥 Eager to dive into the world of education tech, I'm dreaming of future innovations and collaborations. In the grand scheme of things, my goal is to add my two cents to the ICT evolution in education, making it a student-friendly, engaging, and ultra-relevant experience. 🚀📚
+The NALI exhibition has sparked my curiosity and enthusiasm for exploring new technologies in education. I hope to be part of future innovations and collaborations in this domain. In the long run, I aspire to contribute to the advancement of ICT in transforming education, making it more accessible, engaging, and relevant to the needs of today's students.🚀📚
